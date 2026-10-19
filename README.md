@@ -1,0 +1,2 @@
+# premium-pueblo-pot-001-pueblo-coil-pottery-slip-and-p
+Tired of inconsistent slip results that ruin your coil pots' surface? The Pueblo Coil Pottery Slip and Polish Log helps you track every variable—from slip viscosity to burnish pressure—so you can replicate that perfect Pueblo luster every time.  This Notion template solves the pain of guesswork by providing a structured log specifically for Pueblo
